@@ -2,9 +2,9 @@
 
 ## Welcoming Words for Your Wedding
 
-We have been invited here today to witness and celebrate the uniting in marriage of Hannah Martin and Sam Schafer. They are taking the first step of their new beginning; their new life together. The ability and desire for one human being to love another is perhaps the most precious and fulfilling gift that has been entrusted to us. It is an all-consuming task, a lifelong endeavor — the journey we've been preparing for all of our lives. Loving someone is a reason to stretch beyond our limits, to become more for the sake of the other. It is to look into the soul of your beloved and accept what you see. Loving is the ultimate commitment which challenges humans to become all that we are meant to be. As they join in marriage today, Hannah and Sam are announcing to the world that they are welcoming that challenge.
+**Please be seated**
 
-Please be seated.
+We have been invited here today to witness and celebrate the uniting in marriage of Hannah Martin and Sam Schafer. They are taking the first step of their new beginning; their new life together. The ability and desire for one human being to love another is perhaps the most precious and fulfilling gift that has been entrusted to us. It is an all-consuming task, a lifelong endeavor — the journey we've been preparing for all of our lives. Loving someone is a reason to stretch beyond our limits, to become more for the sake of the other. It is to look into the soul of your beloved and accept what you see. Loving is the ultimate commitment which challenges humans to become all that we are meant to be. As they join in marriage today, Hannah and Sam are announcing to the world that they are welcoming that challenge.
 
 ---
 
